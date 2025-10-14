@@ -104,7 +104,7 @@ Tutored 30+ students across 11 countries, creating custom interactive lessons. R
 ## 📫 Let's Connect
 
 - **Email:** sakhi.jindal@gmail.com
-- **Resume:** [View PDF](https://drive.google.com/file/d/1shm9xzt-WVO4BEuuaS-uNXILNUyVjnsI/view?usp=sharing)
+- **Resume:** [View PDF](https://drive.google.com/file/d/1VnoQGZVVzR6Ff62xQKMPtF9kxw68RP6R/view?usp=sharing)
 
 ---
 
