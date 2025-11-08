@@ -103,7 +103,7 @@ Tutored 30+ students across 11 countries, creating custom interactive lessons. R
 
 ## 📫 Let's Connect
 
-- **Resume:** [View PDF](https://drive.google.com/file/d/1VnoQGZVVzR6Ff62xQKMPtF9kxw68RP6R/view?usp=sharing)
+- **Resume:** [View PDF]()
 
 ---
 
